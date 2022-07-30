@@ -2,7 +2,7 @@
 
 想要把日常生活中，遇见的一些好玩的，好用的东西收集起来，组成这个FANTANSI的标签世界!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Today is not a good day,It is the best [day](https://www.wolai.com/zhangao/av9K1R5kxWK64CzTtaVRFi)~
 
 ### 一些小想法
 
