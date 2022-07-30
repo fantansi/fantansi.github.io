@@ -1,4 +1,4 @@
-## fantansi 标签世界
+## Fantansi 标签世界
 
 You can use the [editor on GitHub](https://github.com/fantansi/fantansi.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
