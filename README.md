@@ -1,6 +1,6 @@
 ## Fantansi 标签世界
 
-You can use the [editor on GitHub](https://github.com/fantansi/fantansi.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+想要把日常生活中，遇见的一些好玩的，好用的东西收集起来，组成这个FANTANSI的标签世界!
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
