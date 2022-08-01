@@ -9,7 +9,7 @@ Today is not a good day,It is the best [day](https://www.wolai.com/zhangao/av9K1
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ```markdown
-Syntax highlighted code block
+Syntax highlighted block
 
 # Header 1
 ## Header 2
