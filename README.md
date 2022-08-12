@@ -9,7 +9,7 @@ Today is not a good day, [It is the best day~](https://www.wolai.com/zhangao/av9
 [抖店](https://fxg.jinritemai.com/)     [直播后台](https://buyin.jinritemai.com/dashboard/live/control)
 [蝉妈妈](https://chanmama.com)
 
-[今日热榜](https://tophub.today/c/news]      [秘塔写作猫](https://xiezuocat.com/#/)
+[今日热榜](https://tophub.today/c/news)      [秘塔写作猫](https://xiezuocat.com/#/)
 
 
 ### 一些小想法
