@@ -1,8 +1,16 @@
 ## Fantansi 标签世界
 
-想要把日常生活中，遇见的一些好玩的，好用的东西收集起来，组成这个FANTANSI的标签世界!
+日常生活中，一些好玩的，好用的收集组成FANTANSI的标签世界!
 
 Today is not a good day, [It is the best day~](https://www.wolai.com/zhangao/av9K1R5kxWK64CzTtaVRFi)
+
+### 工作网站
+
+[抖店](https://fxg.jinritemai.com/)     [直播后台](https://buyin.jinritemai.com/dashboard/live/control)
+[蝉妈妈](https://chanmama.com)
+
+[今日热榜](https://tophub.today/c/news]      [秘塔写作猫](https://xiezuocat.com/#/)
+
 
 ### 一些小想法
 
