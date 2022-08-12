@@ -1,6 +1,6 @@
 ## Fantansi 标签世界
 
-日常工作生活中，一些好玩的，好用的收集组在FANTANSI的标签世界
+日常工作生活中，一些好玩的，好用的收集在FANTANSI的标签世界
 
 Today is not a good day, [It is the best day~](https://www.wolai.com/zhangao/av9K1R5kxWK64CzTtaVRFi)
 
