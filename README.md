@@ -16,7 +16,7 @@ Today is not a good day, [It is the best day~](https://www.wolai.com/zhangao/av9
 
 
 ### 软件宝库
-[悠久小宝库](https://u9baoku.xyz/)  [HereItIs](https://www.hereitis.cn/)  [探索TV](https://t.tansuo.tv/)
+[悠久小宝库](https://u9baoku.xyz/)  [HereItIs](https://www.hereitis.cn/)  [探索TV](https://t.tansuo.tv/) [国内CRX下载](https://crxdl.com/) [CRX推荐](https://www.crxsoso.com/)
 
 
 
